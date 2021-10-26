@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vmritunjay143@gmail.com**
 
-- ⚡ Fun fact **i think am funny**
+- ⚡ Fun fact **i think am cool but am not**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
